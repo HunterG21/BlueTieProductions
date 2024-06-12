@@ -1,1 +1,1 @@
-# BlueTieProductions
+# BlueTieProductions Group Project
